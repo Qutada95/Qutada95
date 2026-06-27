@@ -75,7 +75,7 @@ Stay tuned—more projects are coming soon!
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: https://linkedin.com/in/Qutadah05
+- 💼 LinkedIn: [https://linkedin.com/in/Qutadah05](https://www.linkedin.com/in/qutadah-almomani-11913b14a/)
 
 ---
 
